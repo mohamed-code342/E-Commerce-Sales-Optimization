@@ -158,6 +158,4 @@ Sales Optimization
 
 Computer Science / Data & AI Enthusiast
 
-GitHub: https://github.com/mohamed-code342
-
 LinkedIn: https://www.linkedin.com/in/mohamed-saadd
